@@ -1,0 +1,1 @@
+# OCR_Photos-or-image-scanned
